@@ -4,7 +4,7 @@
 
 ## 在线体验
 
-[https://bangwoxuan-choice-wheel.silly-horse-3004.chatgpt.site](https://bangwoxuan-choice-wheel.silly-horse-3004.chatgpt.site)
+[https://xingyaohua.github.io/bangwoxuan-site/](https://xingyaohua.github.io/bangwoxuan-site/)
 
 ## 项目内容
 
